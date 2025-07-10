@@ -1,4 +1,4 @@
-## 👋 Oiê! Seja bem-vindo(a) à comunidade Python Belém 🐍🌴
+## 👋 Oiê! Seja bem-vindo(a/e) à comunidade Python Belém 🐍🌴
 
 ### 🙋‍♂️ Quem somos?
 
