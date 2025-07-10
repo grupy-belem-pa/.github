@@ -44,8 +44,8 @@ Quer contribuir com nossa comunidade? Aqui vão algumas formas de se envolver:
 ### 🍍 Curiosidades da nossa terra
 
 - Açaí aqui é no almoço, não na sobremesa 🍛
-- Chove praticamente todos os dias às 18h 🌧️
-- Sim, a gente ama tucupi, maniçoba, tacacá e cupuaçu 🍲🍹
+- Chove praticamente todos os dias 🌧️
+- Sim, a gente ama tucupi, maniçoba, tacacá e açaí 🍲🍹
 
 ---
 
